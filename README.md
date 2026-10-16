@@ -1,2 +1,2 @@
 # javascript
-js code ftna code
+js code from apna  college
